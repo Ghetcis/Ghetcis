@@ -4,7 +4,7 @@
 
 consider my name byi; i like ghetsis (PKMN) a lot, but dni if you're a degenerate/ship harmoniashipping/joke about or enjoy poképhilia—i'm also very autistic about zelda but i unapologetically hate BOTW/TOTK, so i don't engage with zelda fandom much these days 
 
-merry christmas❗i wish you well... in HELL :fire:
+merry christmas❗i wish you well... 
 
 ![drowzee](https://github.com/Ghetcis/Ghetcis/assets/153468123/91701f9d-b9cb-4844-a512-766882d9c5b5)
 
